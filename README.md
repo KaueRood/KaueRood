@@ -1,16 +1,14 @@
-### Hi there 👋
+### Olá Fudido 👋
 
-<!--
-**KaueRood/KaueRood** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Aqui você aprenderá como ser nerdola
 
-Here are some ideas to get you started:
+esse curso é profissional
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+e feito para que VOCÊ se transforme no lobo pidão
+
+(Mim dê papae)
+
+### MANDE MENSAGEM NESSE NÙMERO
+(16) 9999-999
+
+![](link)
